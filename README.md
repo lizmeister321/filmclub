@@ -1,8 +1,13 @@
 # filmclub
-The home of all things #FilmClub. Watch this space, big things are coming.
+The home of all things #FilmClub. Want to join in on the fun? [Sign up here](http://tinyletter.com/lizzie_ellis)
 
-![Michael Jackson's ready. Are you?]
-(https://media.giphy.com/media/qR6UR8K1Ia2BO/giphy.gif)
+## THIS MONTH'S MOVIE: 
+[The Umbrellas of Cherbourg](https://www.criterion.com/films/27933-the-umbrellas-of-cherbourg?q=autocomplete)
+Everyone's talking about La-La Land as *the* film to beat at this year's Oscars. We're going to take a look at one of the big inspirations behind this film together.
 
-## FIRST MOVIE LAUNCHING SOON!
-[Sign up here](http://tinyletter.com/lizzie_ellis) to stay in the loop 
+First discussion will be held the weekend of March 4th/5th
+Full details available [here](http://tinyletter.com/lizzie_ellis/letters/i-think-i-love-you-3-life-through-a-lens)
+
+
+![Let's not be too dramatic here]
+http://iv1.lisimg.com/image/5281670/500full-the-umbrellas-of-cherbourg-.jpg
