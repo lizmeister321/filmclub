@@ -1,5 +1,5 @@
 # filmclub
-The home of all things #FilmClub. Want to join in on the fun? [Sign up here](http://tinyletter.com/lizzie_ellis)
+The home of all things #FilmClub. Want to join the fun? [Sign up here](http://tinyletter.com/lizzie_ellis)
 
 ## THIS MONTH'S MOVIE: 
 [The Umbrellas of Cherbourg](https://www.criterion.com/films/27933-the-umbrellas-of-cherbourg?q=autocomplete)
