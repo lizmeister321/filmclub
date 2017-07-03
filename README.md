@@ -1,13 +1,33 @@
-# filmclub
-The home of all things #FilmClub. Want to join the fun? [Sign up here](http://tinyletter.com/lizzie_ellis)
+# Welcome To \#FilmClub!
 
-## THIS MONTH'S MOVIE: 
-[The Umbrellas of Cherbourg](https://www.criterion.com/films/27933-the-umbrellas-of-cherbourg?q=autocomplete)
-Everyone's talking about La-La Land as *the* film to beat at this year's Oscars. We're going to take a look at one of the big inspirations behind this film together.
+## What's \#FilmClub? 
 
-First discussion will be held the weekend of March 4th/5th
-Full details available [here](http://tinyletter.com/lizzie_ellis/letters/i-think-i-love-you-3-life-through-a-lens)
+\#FilmClub is a social way to enjoy and discover the joys of movies. 
+
+Lots of folks like joining book clubs, but find that blocking out the time for 
+
+## What are we watching this month?
 
 
-![Let's not be too dramatic here]
-(http://iv1.lisimg.com/image/5281670/500full-the-umbrellas-of-cherbourg-.jpg)
+## How can I join in?
+
+[Sign up here](http://tinyletter.com/lizzie_ellis) to get all the latest info. You can also keep an eye on this page for now to get links to our polls, forms and more.
+
+You can also follow me and #FilmClub on [Twitter](https://twitter.com/lizmeister321/) for updates and general film-related yelling
+
+
+## **Now Playing**
+
+Film Club \#2 is on its way to you soon! What do you want to watch? [Let us know by filling out this 4-question form](https://lizzie76.typeform.com/to/DusNMF)
+
+
+### Calendar:
+
+| Date       | Action |
+|:-----------|--------|
+|**7/5/17:** | [Film Submission form for August](https://lizzie76.typeform.com/to/DusNMF) goes live |
+|**7/26/17:** | Top 3 submissions posted. Vote for your favorite (link TBA) |
+|**8/2/17:** | August Movie announced! |
+|**8/13/17:** | Group screening! Details TBA |
+
+
