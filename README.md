@@ -2,8 +2,9 @@
 
 ## What's FilmClub? 
 
-FilmClub is a social way to enjoy and discover the joys of movies. Like a book club, we'll pick a movie as a group and then watch and discuss it. We're based in DC but are using web tools to make sure anyone, anywhere can join in the fun! 
+FilmClub is a social way to enjoy and discover the joys of movies. Like a book club, we'll pick a movie as a group and then watch and discuss it. We're based in DC but are using web tools to make sure anyone, anywhere can join in the fun!
 
+I did a talk at [Hack && Tell DC](https://twitter.com/DCHackAndTell) a while back to introduce the idea to people. Check out the slides at the "about-filmclub.html" link above.
 
 
 ## What are we watching this month?
