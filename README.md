@@ -24,12 +24,12 @@ Film Club \#2 is on its way to you soon! What do you want to watch? [Let us know
 
 ## How can I join in?
 
-###**[Sign up here](http://tinyletter.com/lizzie_ellis) to get all the latest info.** 
+### **[Sign up here](http://tinyletter.com/lizzie_ellis) to get all the latest info.** 
 
 You can also keep an eye on this page for now to get links to our polls, forms and more. Follow me and #FilmClub on [Twitter](https://twitter.com/lizmeister321/) for updates, gifs, and general film-related yelling.
 
 
-
+See you in August!
 ![See you at the movies](https://marxwellhousecoffee.files.wordpress.com/2014/09/theater.gif)
 
 
