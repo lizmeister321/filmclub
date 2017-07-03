@@ -30,6 +30,8 @@ You can also keep an eye on this page for now to get links to our polls, forms a
 
 
 See you in August!
+
+
 ![See you at the movies](https://marxwellhousecoffee.files.wordpress.com/2014/09/theater.gif)
 
 
